@@ -1,4 +1,4 @@
-# 
+# premium NFT Wash Trading Bot for nft flip bot | real-time-monitoring & trailing-stop is the best nft flip bot, featuring real-time-monitoring and trailing-stop. Fast, smart, and
 
 
 
